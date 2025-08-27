@@ -13,4 +13,4 @@ Mau jalan-jalan atau cuma ingin tahu perkembangan di Temanggung? Temanggung.co s
 
 Ayo, jelajahi Temanggung bersama kami!
 
-Foto: data.temanggungkab.go.id
+*Foto: data.temanggungkab.go.id*
