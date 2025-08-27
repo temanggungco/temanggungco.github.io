@@ -12,3 +12,5 @@ Di sini, kamu bisa dapatkan kabar terbaru dari Temanggung, rekomendasi tempat wi
 Mau jalan-jalan atau cuma ingin tahu perkembangan di Temanggung? Temanggung.co siap menemani dengan info lengkap dan asyik!
 
 Ayo, jelajahi Temanggung bersama kami!
+
+Foto: data.temanggungkab.go.id
